@@ -1,1 +1,0 @@
-# GNIT-proyecto-test
